@@ -14,7 +14,6 @@
     - 《困境与出路》
     - 《创新者的任务》
 
-
 ## changelog
 20190616 chris newadd
 
