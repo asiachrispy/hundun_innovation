@@ -1,6 +1,7 @@
 # 巴菲特致股东信
 
 ## [巴菲特股东信](https://xuangubao.cn/subject/973)
+* [1957年-2019年巴菲特致股东的信全集](https://xueqiu.com/7548813813/126235389)
 
 * [2019年巴菲特致股东的信](https://mp.weixin.qq.com/s?__biz=MzA5ODExODE3MQ==&mid=2762455553&idx=4&sn=03a936238a3779c7fc62de60651ffbb6&chksm=b1c5657586b2ec63ab7871256dbfb3ec5c133be2de373ee6a8a53039d31f929ab19c30ab4933&scene=0&xtrack=1&rd2werd=1#wechat_redirect)
 * [2018年巴菲特致股东的信](https://mp.weixin.qq.com/s?__biz=MzIyNzIxMDAxNw==&mid=2649972574&idx=2&sn=24ab13c172dfb4efc02cab83fdd26599&chksm=f0635910c714d006fc2466a44edebc6e9a6a192831dad4d9cf92bcc9ba59e1ce1526bbc64971&scene=0&xtrack=1&rd2werd=1#wechat_redirect)
